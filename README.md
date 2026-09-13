@@ -1,4 +1,4 @@
-# 💫 About Me:
+# Me:
 a weirdo kid, i think im mental disorder 
 
 
